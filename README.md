@@ -84,7 +84,7 @@ Have a question, need help setting up Zwitch.tv, found a bug, or want to share f
 
 We'd love to hear from you!
 
-📧 **Message The Makn Developer Here:**  
+📧 **Message The Main Developer Here:**  
 **https://steamcommunity.com/id/YourLocalYandere/**
 
 Feel free to reach out. The Zwitch.tv team appreciates your support, suggestions, and feedback! 💜🦊
