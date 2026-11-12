@@ -100,3 +100,6 @@ Thank you for checking out Zwitch.tv!
 **Watch. Connect. Belong.**
 
 **Made with 💜, paws, and a little fox magic.** 🐾
+
+<img width="1536" height="1024" alt="Zwitch tv Neon Community Hub" src="https://github.com/user-attachments/assets/abd214b0-f5cf-467a-a620-3c241bed6a91" />
+
