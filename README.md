@@ -84,8 +84,8 @@ Have a question, need help setting up Zwitch.tv, found a bug, or want to share f
 
 We'd love to hear from you!
 
-📧 **Email the Zwitch.tv Team:**  
-**zwitch.tv.team@hotmail.com**
+📧 **Message The Makn Developer Here:**  
+**https://steamcommunity.com/id/YourLocalYandere/**
 
 Feel free to reach out. The Zwitch.tv team appreciates your support, suggestions, and feedback! 💜🦊
 
